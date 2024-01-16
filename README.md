@@ -1,4 +1,4 @@
-# Team Work
+# Team Work 🤝
 We're a group of four people. We're:
 - Atena
 - Júlia
